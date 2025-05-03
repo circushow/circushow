@@ -1,6 +1,6 @@
 # ***Greetings***
 
-### **[not sure what to put here, so I'll describe myself.**
+### **[not sure what to put here, so I'll describe myself.**]
 
 # ***PERSONALITY***
 **direct, honest, insensitive, kind <--depends on ppl, rude <-- when im rlly mad, outgoing, extroverted, i dont care about negative opinions, or opinions, mature, cool, silly<--rarely, I focus on life more. Feel free to int!! I promise I don't bite<3 I'm actually kind if you're kind back!/moreinfoin@birthdaychild.**
