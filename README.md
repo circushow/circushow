@@ -12,5 +12,5 @@
 **toxic people, sensitive people<-- not all, (REALLY) immature people, enemies, blame others, manipulative, two-faced<--heavyonthisone**
 
 # ***PEOPLE I REALLY DISLIKE***
-**Satan<--Veryveryheavyonthis, r@cists, r@pists, h0m0, p3d0, exes<--heavyonthis, copycats.<--VERYheavyonthis**
+**Satan, r@cists, r@pists, h0m0, p3d0, exes, copycats.<--VERYheavyonall**
 
