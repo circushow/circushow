@@ -9,7 +9,7 @@
 **God, family, cool people, goodmindsets, mature, honestly just personality just like me.**
 
 # ***PEOPLE I DISLIKE***
-**toxic people, sensitive people<-- not all, (REALLY) immature people, enemies, blame others, manipulative, two-faced<--yeavyonthisone**
+**toxic people, sensitive people<-- not all, (REALLY) immature people, enemies, blame others, manipulative, two-faced<--heavyonthisone**
 
 # ***PEOPLE I REALLY DISLIKE***
 **Satan, r@cists, r@pists, h0m0, p3d0, exes, copycats.**
