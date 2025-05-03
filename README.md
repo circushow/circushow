@@ -1,16 +1,15 @@
-## Hi there 👋
+# ***Greetings***
 
-<!--
-**circushow/circushow** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### **[not sure what to put here, so I'll describe myself.**
 
-Here are some ideas to get you started:
+# ***PERSONALITY***
+**direct, honest, insensitive, kind <--depends on ppl, rude <-- when im rlly mad, outgoing, extroverted, i dont care about negative opinions, or opinions, mature, cool, silly<--rarely, I focus on life more. Feel free to int!! I promise I don't bite<3 I'm actually kind if you're kind back!/moreinfoin@birthdaychild.**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# ***PEOPLE I LIKE***
+**God, family, cool people, goodmindsets, mature, honestly just personality just like me.**
+
+# ***PEOPLE I DISLIKE***
+**toxic people, sensitive people<-- not all, (REALLY) immature people, enemies, blame others, manipulative, two-faced<--yeavyonthisone**
+
+# ***PEOPLE I REALLY DISLIKE***
+**Satan, r@cists, r@pists, h0m0, p3d0, exes, copycats.**
