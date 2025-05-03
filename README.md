@@ -14,4 +14,3 @@
 # ***PEOPLE I REALLY DISLIKE***
 **Satan, r@cists, r@pists, h0m0, p3d0, exes, copycats.**
 
-https://github.com/user-attachments/assets/a085e8d0-204e-4418-9379-6612cb8ea5ad
