@@ -1,5 +1,7 @@
 # ***Greetings***
-
+***
+![Image](https://github.com/user-attachments/assets/2eb8bc07-4f12-4be8-bff2-5c75a1dfb7f8)
+***
 ### **[not sure what to put here, so I'll describe myself.**]
 
 # ***PERSONALITY***
