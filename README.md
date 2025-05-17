@@ -1,2 +1,2 @@
-![Image](https://github.com/user-attachments/assets/8bc3048d-0220-4da1-91d3-e1f9a8d902d7)
+![Image](https://github.com/user-attachments/assets/8b27f39f-a1db-45bb-9df6-34d87444b88c)
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎  ‎[strawpage](https://cryiingchild.straw.page)  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎‎‎‎‎‎[socials](https://guns.lol/cryingchild)  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[sendanything](https://cryingchild.atabook.org)
